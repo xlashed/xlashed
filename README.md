@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @xlashed
+- 📩 To contact me, email me at xl@floppa.art
+- 📞 To recieve a faster reply, dm me on discord at xl#6666
